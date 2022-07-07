@@ -16,7 +16,9 @@ On Wednesday (07/06/2022) at 8:51 AM, I reached out to Alex to ask about the agr
 
 **Other PII Information**: He drives a black CX-30 (could be a CX-50 now). Loves the Manchester United F.C. Red Devils. Has a dog, wife, and one kid on the way as of July 2022.
 
-Possible relatives: Emma Smith • Judith Timby • Mary Smith • Mary Smith • Patton Smith • Sarah Smith • Amanda Smith • Billie Smith • Bryan Smith • Deborah Willis • Gary Smith • Herncy Poteau • Hope Brown • Lorraine Hale 
+- Possible relatives: Emma Smith • Judith Timby • Mary Smith • Mary Smith • Patton Smith • Sarah Smith • Amanda Smith • Billie Smith • Bryan Smith • Deborah Willis • Gary Smith • Herncy Poteau • Hope Brown • Lorraine Hale 
+
+- Older addresses: 650 Dekalb St, Unit 1410, Auburn AL 36830 | 133 Alpine Ct, Franklin TN 37069 | though I'm pretty sure his current address is 4912 LE Blonde Ave Cincinnati, OH 45208
 
 
 
