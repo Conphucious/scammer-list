@@ -4,9 +4,9 @@ A list of scammers from C&B/BAT
 
 
 
-## Alexander Patton Smith (born 1989)
+## Alexander Patton Smith
 
-**Description**: Alex Smith (age 33 at the time) of Cincinnati, Ohio (45216) sold a 2007 RX-8 on 06/23/2022 on the `CarsAndBids` platform. After the auction, I texted him to get the transportation setup and wired him the money. Only AFTER I wired him the money, did he mentioned that the keyfob may or may not work which is critical for vehicle operation as it has keyless entry/ignition (GT). BOTH key fobs did not work and one of the keyfobs does not even hold the key. He failed to mention the broken center console lid, the loose passenger side door handle, the multiple golf ball sized dents on the side of the vehicle, and the leaky gas cap. 
+**Description**: Alex Smith (age 26 or 33 at the time) of Cincinnati, Ohio (45216) sold a 2007 RX-8 on 06/23/2022 on the `CarsAndBids` platform. After the auction, I texted him to get the transportation setup and wired him the money. Only AFTER I wired him the money, did he mentioned that the keyfob may or may not work which is critical for vehicle operation as it has keyless entry/ignition (GT). BOTH key fobs did not work and one of the keyfobs does not even hold the key. He failed to mention the broken center console lid, the loose passenger side door handle, the multiple golf ball sized dents on the side of the vehicle, and the leaky gas cap. 
 
 On Friday (07/01/2022) 4:23 PM, Alex agreed to replace both key fobs, the broken center console lid, and the leaky gas cap. The following day (Saturday), he started saying the replacement would be $80 which it would not be ($500 since both key fobs do not work and 2 are required for programming a new one). 
 
