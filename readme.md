@@ -14,7 +14,7 @@ On Sunday (07/03/2022) at 9 AM, Alex rescinded his offer to pay for a replacemen
 
 On Wednesday (07/06/2022) at 8:51 AM, I reached out to Alex to ask about the agreed amount of $350 (Half of key replacement, center console and leaky gas cap replacement). He replied at 12:42 PM once again kept insisting the key fob would not be much money. After I told him this is what the dealership quoted me and asked for an updated later at 9PM, I got no reply. He ghosted me. I may pursue legal small claims if deemed possible. 
 
-**Other PII Information**: He drives a black CX-30 (could be a CX-50 now). Loves the Manchester United F.C. Red Devils. Has a dog, wife, and kids.
+**Other PII Information**: He drives a black CX-30 (could be a CX-50 now). Loves the Manchester United F.C. Red Devils. Has a dog, wife, and one kid on the way as of July 2022.
 
 
 
